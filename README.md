@@ -65,7 +65,7 @@
 
 ## 📫 Contact Me
 
-* 📧 Email: [your-email@gmail.com](mailto:your-email@gmail.com)
+* 📧 Email: [your-email@gmail.com](mailto:geethikavarshini65@gmail.com)
 
 ---
 
